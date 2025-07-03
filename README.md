@@ -38,10 +38,10 @@ This GitHub organization is used for developing and managing:
 
 ## Get in Touch
 
-Visit us: 🌐 [funtime3freddy3records.com](https://funtime3freddy3records.com)
+Visit us: [funtime3freddy3records.com](https://funtime3freddy3records.com)
 
 For business inquiries or access requests, contact:  
-📧 [contact@funtime3freddy3records.com](mailto:contact@funtime3freddy3records.com)
+[contact@funtime3freddy3records.com](mailto:contact@funtime3freddy3records.com)
 
 ---
 
